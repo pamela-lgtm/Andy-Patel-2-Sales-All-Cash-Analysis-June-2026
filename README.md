@@ -1,0 +1,1 @@
+# Andy-Patel-2-Sales-All-Cash-Analysis-June-2026
